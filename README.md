@@ -1,1 +1,1 @@
-# Welcome to the pacbotteam's homepage!
+# Welcome to the Maze Runner's homepage!
